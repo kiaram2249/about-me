@@ -10,7 +10,9 @@
 **About Me:**
 
 1. **Games**
-
+* _Pj sekai_
+* _Lovebrush Chronicles_
+* 
 
 
 
