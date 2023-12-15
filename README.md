@@ -3,8 +3,11 @@
 #### December 15,2023
 #### Period: 5
 
-**Email:** KIaram4@nycstudents.net  
-**School:**
+**Email:** KIaram4@nycstudents.net
+
+**School:** High School of Telecommunications Arts and Technology
+
+
 
 
 
