@@ -18,7 +18,9 @@
 * _Full House_
 * _The Good Doctor_
 
-
+3. **Anime**
+* _Fruit Basket_
+* _
 
 
 
