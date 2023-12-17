@@ -21,7 +21,10 @@
 3. **Anime**
 * _Fruit Basket_
 * _Attack on Titans_
-* 
+* _Given_
+* _Sasaki and Miyano_
+
+
 
 
 
